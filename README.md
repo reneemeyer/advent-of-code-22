@@ -7,3 +7,4 @@ Because I know you care just as much as me, here is my current ⭐️ count:
 **Day**
 
 **1** || ⭐️⭐️
+**2** || ⭐️⭐️
